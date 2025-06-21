@@ -67,7 +67,7 @@ I plan to explore:
 
 **Heir Onyi**  
 NextWork Student  
-[NextWork Profile](https://community.nextwork.org/c/i-have-a-question?automatic_login=true)
+
 
 ---
 
